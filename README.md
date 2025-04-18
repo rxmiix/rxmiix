@@ -1,5 +1,8 @@
 𐔌       two time     ﹒      ౨ৎ
+
 𓏵    ﹒    they/them   ◟     𖦹
+
+
 ᛝ      pronouns page: 
 [(https://en.pronouns.page/@rxmiix)](https://en.pronouns.page/@rxmiix)     ﹒        ❏
 
