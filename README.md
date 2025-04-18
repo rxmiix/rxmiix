@@ -14,9 +14,9 @@ https://discord.gg/mPDhKCM9qF
  
 ⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟
 
- PONYTOWN BOUNDARIES
+  BOUNDARIES
  
-yes┆ㆍsitting with me, chatting to me, compliments
+yes┆ㆍchatting to me, compliments
 
 ask┆ㆍventing to me, adding me as a friend
 
